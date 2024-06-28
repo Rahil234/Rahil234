@@ -18,7 +18,7 @@
 - **Home Automation**
 
 ### 📫 How to Reach Me
-- You can contact me through [LinkedIn](your-linkedin-url) or [Twitter](your-twitter-url).
+- You can contact me through [LinkedIn](https://www.linkedin.com/in/rahil-sardar-47a72b2a2) or [Twitter](https://www.x.com/rahil_234).
 
 ### 😄 Pronouns
 - [Your pronouns]

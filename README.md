@@ -20,8 +20,5 @@
 ### 📫 How to Reach Me
 - You can contact me through [LinkedIn](https://www.linkedin.com/in/rahil-sardar-47a72b2a2) or [x](https://www.x.com/rahil_234).
 
-### 😄 Pronouns
-- [Your pronouns]
-
 ### ⚡ Fun Fact
 - I can solve a Rubik's Cube in under a minute!
